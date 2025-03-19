@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **adityachincholkar11@gmail.com**
 
-- ⚡ Fun fact **I am from non CS Background**
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
